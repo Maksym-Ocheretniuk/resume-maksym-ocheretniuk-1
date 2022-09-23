@@ -1,0 +1,1 @@
+# resume-maksym-ocheretniuk-1
